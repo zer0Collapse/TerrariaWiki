@@ -1,0 +1,1 @@
+# zer0collapse.github.io
